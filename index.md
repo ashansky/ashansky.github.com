@@ -12,5 +12,6 @@ Never wanting my job or desires to define me. I am a son of the living God. I am
 
 ###Contact me at:  
 
-- twitter: @ashansky
 - email: ashansky@gmail.com
+- linkedin: [andrewshansky](http://www.linkedin.com/in/andrewshansky)
+- twitter: [@ashansky](http://twitter.com/ashansky)
